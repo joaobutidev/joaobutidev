@@ -56,7 +56,7 @@ More projects coming soon.
 # 📫 Contact
  
 - LinkedIn: (https://www.linkedin.com/in/joaobutidev)
-
+- Email: (joao.cc443@gmail.com)
 ---
 
 ⭐ Always learning, building and improving.
